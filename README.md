@@ -13,4 +13,4 @@ Wenn du die Löschung deiner Daten oder deines Benutzerkontos für die App **msm
 
 ### Kontakt
 Bei Fragen erreichst du uns unter:
-* E-Mail: [Deine E-Mail-Adresse hier einfügen]
+* E-Mail: saloumeseck38@gmail.com 
